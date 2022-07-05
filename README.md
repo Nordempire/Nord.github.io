@@ -1,2 +1,2 @@
 # Nord.empire.io
-You've arrived in Nord.og.empire
+You've arrived in Nord.empire.io
